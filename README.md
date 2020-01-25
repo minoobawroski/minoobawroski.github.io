@@ -1,0 +1,2 @@
+# minoomalik.github.io
+ 
